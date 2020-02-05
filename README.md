@@ -29,3 +29,6 @@ gerardodarkenxd@gmail.com
 
 Oscar Humberto Salazar Arredondo
 oscxrslimsa@gmail.com
+
+Miguel Angel Vazquez Noriega
+angelvqz95@gmail.com
